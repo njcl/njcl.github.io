@@ -19,6 +19,8 @@ Next, there's Graphic Arts competitions. There's a lot of categories for Graphic
 
 Along with Graphic Arts, there's writing competitions, including Modern Myth and other essay writing competitions, in which contestants either write a mythological story in modern times, or write an essay about a given topic pertaining to the classics.
 
+If none of these suit you, but you really like Latin in general, there's academic testing. The various subjects include Latin Grammar, Latin Reading Comprehension, Mythology, and Latin Derivatives.
+
 Lastly, there's Ludi/Olympika for all the athletes in JCL. These are athletic competitions/races at conventions in which athletes run various races and compete to win 
 
 Cura et Valeas,<br>Andy Kamath 
